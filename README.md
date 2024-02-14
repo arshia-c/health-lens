@@ -1,1 +1,1 @@
-![image](https://github.com/arshia-c/health-lens/assets/89679128/94a1d727-58af-48fe-9715-09ffae1cde0a)
+![image](https://github.com/arshia-c/health-lens/assets/89679128/4f7082ca-d19b-43c9-91e9-be872f4f9680)
